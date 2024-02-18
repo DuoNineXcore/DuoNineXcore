@@ -1,16 +1,21 @@
-### Hi there 👋
+lizard growl
 
-<!--
-**DuoNineXcore/DuoNineXcore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+YOURE LISTENING TO
 
-Here are some ideas to get you started:
+grenade sfx
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+105.5
+
+rubbish colliding with wall
+
+METROPOLIS FM
+
+miros vulture lock on
+
+WHERE WE PLAY NOTHING BUT Sundown, Floes, AND Kayava
+
+rot consuming sfx
+
+THIS ISNT YOUR ANCIENTS STATION
+
+Imagine Dragons - Radioactive plays
