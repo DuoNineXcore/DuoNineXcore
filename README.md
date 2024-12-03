@@ -1,4 +1,4 @@
-<h2 align="center">im riven</h2>
+<h2 align="center">im riven, call me duo if you want</h2>
 
 ###
 
